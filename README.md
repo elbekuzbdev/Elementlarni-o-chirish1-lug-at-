@@ -1,0 +1,1 @@
+# Elementlarni-o-chirish1-lug-at-
